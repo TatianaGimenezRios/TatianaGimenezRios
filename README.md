@@ -22,3 +22,7 @@ Aquí algunas de las tecnologías con las que trabajo:
 ## Contacto
 
 - 📧 Puedes contactarme a través de mi correo electrónico: tatagimeri07@gmail.com
+
+  
+
+https://user-images.githubusercontent.com/105942321/204950729-a2e0b19d-9133-4ded-a680-62f76d5248e7.gif

@@ -8,7 +8,7 @@
 - 🌍 Soy de Resistencia-Chaco, capital de Las Esculturas.
 - 🎓 Actualmente, estoy cursando la Tecnicatura Universitaria en Programación en UTN y Contadora Pública en UNCAUS.
 - 💡 Me apasiona el mundo de la programación, la contabilidad y el teatro.
-- 💟 
+- 💟 💍 🇦🇷
 
 ## Habilidades
 
